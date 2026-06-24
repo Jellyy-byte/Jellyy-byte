@@ -1,5 +1,5 @@
 # 💫 About Me:
-Gemini Certified Student | Google For Education Certifications | Student | Learning java Script | Web Developer
+Gemini Certified Student | ADBI Cybersecurity Certified  | Student | Learning java Script | Web Developer
 
 
 ## 🌐 Socials:

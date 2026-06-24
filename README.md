@@ -1,5 +1,5 @@
 # 💫 About Me:
-Gemini Certified Student | Google For Education Certifications | Student | Learning Python 
+Gemini Certified Student | Google For Education Certifications | Student | Learning java Script | Web Developer
 
 
 ## 🌐 Socials:
